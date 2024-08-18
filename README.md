@@ -11,7 +11,7 @@
 
 ### 下载与安装
 - [QQ群聊](http://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=uwsKwYOHuNdrr7jXNk4HI-VG2qBG-xJ6&authKey=QoKdEGe%2FY0Pxc3IczCHm%2FgSfecByLJjfBG6Hbj%2FuWTFoRMl5QCMqlL5JlOsZ94ct&noverify=0&group_code=773526766)
-- [123云盘](https://www.123pan.com/s/vp06Vv-JmS3v.html)
+- [123云盘](https://www.123912.com/s/63nZVv-yEyMd.html)
 
 ---
 
